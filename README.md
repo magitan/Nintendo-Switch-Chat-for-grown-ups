@@ -1,5 +1,3 @@
-# Nintendo-Switch-Chat-for-grown-ups
-Nintendo Switch Chatroom Guide for Zoom!
-
-
-This Github is to maintain lots of lists, friend request posts and guides tips and tricks!
+# Magi10's Lists
+# these pages are my personal contribution to my list-holding that is going to be fantastic later;
+# things like my games, friends code, nicknames, screenshot links etc all will be displayed here!
